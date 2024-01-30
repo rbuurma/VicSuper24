@@ -63,8 +63,9 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 
 ### Week 5: Christina Rosetti (1860s)
 
-#### February 20
+#### February 20 - meet in McCabe! 
 + "Goblin Market" (read all)
++ Spiritualism at Swarthmore library visit 
 + research assignment #2 due; research assignment #3 assigned
 
 #### February 22
