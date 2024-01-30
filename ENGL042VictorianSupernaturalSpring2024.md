@@ -60,10 +60,11 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 #### February 15
 + Gaskell stories, continued
 + exerpt from Avery Gordon, "*Ghostly Matters*
++ short paper assigned
 
 ### Week 5: Christina Rosetti (1860s)
 
-#### February 20 - meet in McCabe! 
+#### February 20 - meet in McCabe! no food or drink today.
 + "Goblin Market" (read all)
 + Spiritualism at Swarthmore library visit 
 + research assignment #2 due; research assignment #3 assigned
@@ -77,7 +78,7 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 #### February 27
 + "Green Tea"
 + excerpt from *Late Victorian Holocausts*
-+ research assignment #3 due; short paper assigned
++ research assignment #3 due
 
 #### February 29
 + "Carmilla"
