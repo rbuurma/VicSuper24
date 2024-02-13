@@ -55,34 +55,34 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 #### February 13
 + "The Old Nurse's Story"
 + "The Poor Clare"
-+ research assignment #1 due; research assignment #2 assigned
++ research assignment #1 due
 
 #### February 15
 + Gaskell stories, continued
 + exerpt from Avery Gordon, "*Ghostly Matters*
-+ short paper assigned
++ research assignment #2 assigned
 
 ### Week 5: Christina Rosetti (1860s)
 
-#### February 20 - meet in McCabe! no food or drink today.
+#### February 20
 + "Goblin Market" (read all)
-+ Spiritualism at Swarthmore library visit 
-+ research assignment #2 due; research assignment #3 assigned
 
 #### February 22
 + "Goblin Market," continued
 + Herbert Tucker, from "Rossetti's Goblin Marketing"
++ research assignment #2 due; research assignment #3 assigned
++ short paper assigned
 
 ### Week 6 Sheridan Le Fanu (1870s)
 
 #### February 27
 + "Green Tea"
 + excerpt from *Late Victorian Holocausts*
-+ research assignment #3 due
 
 #### February 29
 + "Carmilla"
 + Nina Auerbach, from *Our Vampires, Ourselves*
++ research assignment #3 due
 
 ### Week 7: Margaret Oliphant (1890s)
 
