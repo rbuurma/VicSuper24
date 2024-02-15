@@ -70,7 +70,7 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 
 #### February 22
 + "Goblin Market," continued
-+ Herbert Tucker, from "Rossetti's Goblin Marketing"
++ Herbert Tucker, "Rossetti's Goblin Marketing"
 + research assignment #2 due; research assignment #3 assigned
 + short paper assigned
 
