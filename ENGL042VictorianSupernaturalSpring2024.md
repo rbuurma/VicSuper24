@@ -66,6 +66,7 @@ https://www.djo.org.uk/household-words/volume-i/page-1.html
 
 #### February 20
 + "Goblin Market" (read all)
++ meet in the McCabe LibLab LibLab (first floor) for ghosts, spiritualism, and special collections session 
 
 #### February 22
 + "Goblin Market," continued
